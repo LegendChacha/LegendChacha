@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @LegendChacha
+- 👋 Hi, I’m @LegendGamer
 - 👀 I’m interested in Games
 - 🌱 I’m currently learning Coding
 - 💞️ I’m looking to collaborate on no one
